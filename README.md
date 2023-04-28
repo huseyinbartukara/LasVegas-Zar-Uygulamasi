@@ -7,4 +7,4 @@ Swift programlama dilini ve ios dünyasını öğrenme yolculuğumda başlamış
 
 
 
-<img src="https://r.resimlink.com/8F56l.png" width="280" height="500"> <img src="https://r.resimlink.com/q5zlVNvo.png" width="280" height="500"> <img src="https://r.resimlink.com/OcMk_IDEZh3R.png" width="280" height="500">  
+<img src="https://r.resimlink.com/TY0rP-Bw.png" width="280" height="500"> <img src="https://r.resimlink.com/Tjuc8UF.png" width="280" height="500">  
